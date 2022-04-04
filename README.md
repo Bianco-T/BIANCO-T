@@ -1,4 +1,4 @@
-Hola soy  **Bianco-T**
+Hola soy  **Bianco-Tomas**
 
 curso **4 2 avionica**
 
